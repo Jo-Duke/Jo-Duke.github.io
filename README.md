@@ -9,6 +9,6 @@
 
 
 
-*2. Have the strong Work ethic*
+*2. Have a strong Work ethic*
 > Working hard is a trait that nobody talks about, it's easy to say that I will work hard but not every person will do it that's why as a Basketball player having a great work ethic will get you somewhere because not everybody works hard which is why we value hard workers. If you struggle to find the motivation to work hard or harder here is a video to help you get motivated
 <iframe width="560" height="315" src="https://www.youtube.com/embed/UxS299WwK0g" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
